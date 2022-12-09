@@ -9,7 +9,7 @@ I sometimes listen to musics and play some games. :D
 I occasionally do 3D/2D Graphics as a hobby.
 
 ### What I like
-I like open-source projects. (even though I don't contribute yet) 
+I like open-source projects. (even though I don't contribute yet)  
 I like small/indie content creators. 
 
 ### Contacts
