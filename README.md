@@ -21,3 +21,4 @@ Discord
 coldified_#9617  
 [Github](https://github.com/coldifiedmk2)  
 [Website](https://coldified.cf)
+Email - me@coldified.cf
